@@ -14,7 +14,7 @@ The hole is up.
 
 Connection between the left and right side we need two pieces.
 
-![2#2Roller](https://user-images.githubusercontent.com/56201060/128755960-fa7c1a76-24b9-4c1e-8850-5839bdb32966.jpg)
+![2#3Roller](https://user-images.githubusercontent.com/56201060/128756062-1db1b816-d205-4389-be65-ec631da7970b.jpg)
 
 
 
